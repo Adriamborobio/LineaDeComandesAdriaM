@@ -1,0 +1,2 @@
+# LineaDeComandesAdriaM
+Exercici
